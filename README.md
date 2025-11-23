@@ -1,0 +1,1 @@
+# grupaG-adb-rozpoznawanie-znakow
